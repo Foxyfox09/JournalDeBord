@@ -2,8 +2,8 @@
 ## Décrire 5 emplois du domaine du multimédia
 Choisissez des emplois qui pourraient vous intéresser. 
 
-### Emploi 1 - Identification
-Écrire 4 à 5 lignes. Parler des tâches reliées à l'emploi. Expliquer où ces personnes travaillent. Décrire les qualités requises pour pratiquer ce métier. Un point qui vous intéresse dans ce métier. Un point qui rend ce métier moins intéressant pour vous.  
+### Emploi 1 - Webmaster
+Job qui se rapporte à créer des sites internet ou réorganiser/actualiser celui-ci. Ce travail peut autant être effectué de la maison que depuis un lieu de travail. Permet d'effectuer des contrats avec différents studios ou compagnies qui ont besoins de créer des sites web. Ce job pourrait m'intéresser car je considère que j'ai quand même desfois de bonnes idées ce qui pourrait être avantageux pour eux. Ce job offre un temps de travail flexible, dépendament toujours de l'employeur, et j'aime pouvoir travailler à ma vitesse et à ma guise, alrs ce serait quelque chose d'avantageux à mes yeux. Il faut simplement respecter les limites établies par le contrat signé avec l'employeur. Le salaire est intéressant, moins compétitifs que d'autres, mais tout de même intéressant. 
 
 ### Emploi 2 - Travailleur autonome
 Travailleur autonome. Des compagnies vous rejoignent afin de vous offrir des contrats variés à réaliser dans un temps imparti. les gens qui effectuent ce travail travaillent depuis leur logement,
@@ -16,7 +16,6 @@ et autres. Ce qui m'attire beaucoup dans ce métier est surtout l'aspect de l'am
 ### Emploi 4 - Modélisation 3D
 Travail qui consiste à réaliser des modèles 3D, créer des animations 3D, tout ce qui se rapporte au monde des modèles virtuels en trois dimensions. Travail en studio, possibilité de travailler de la maison, dépendament du studio qui vous emploie. Pour pouvoir travailler dans ce domaine, il faut une bonne connaissance en modélisation 3D, un point de vue artistique, de la créativité afin de trouver des idées, si jamais il n'y a pas un sujet précis qui vous est demandé. J'aimerais bien travaillé dans ce domaine car créer des modèles 3D serait quelque chose qui me garderait réveillé, je ne m'ennuirais pas puisque je serais constament en train de faire des nouveaux modèles 3D, ou bien retravaillé des modèles imparfait, et le monde du jeu vidéo est quelque chose qui m'intéresse depuis que je suis tout petit alors ce serait une idée de travail intéressant.
 
-### Emploi 5 - Identification
-4 à 5 lignes
-
+### Emploi 5 - Enseignant dans le domaine multimédia
+Enseignant pour les élèves qui voudraient aller dans le même domaine que ce que j'ai étudié, possibilité d'enseigner plusieurs choses étant donné que les domaines sont séparés en différentes classes. Ça permettrait de pouvoir viser un sujet qui est plus intéressant à mes yeux et de pouvoir partager cette passion à d'autres. C'est un travail qui se donne habituellement en présentiel, ce qui signifie qu'il y aura une nécessité de se déplacer sur les lieux de travail pour pouvoir le pratiquer. Afin de travailler dans ce domaine, il faudra être minimalement organisé, savoir son sujet ainsi qu'être à l'aise en avant d'une classe et être capable d'effectuer des discours. Ce travail m'attire car je suis quelqu'un qui aime parler, je ne suis pas gêné de parler devant une classe, le salaire est quand même intéressant, pas le meilleur, mais intéressant.
 
