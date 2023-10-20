@@ -12,8 +12,9 @@ ils ont un salaire compétitif mais c'est également un domaine assez compétiti
 ### Emploi 3 - Artiste VFX
 Artistes effectuant des effets spéciaux pour des films, courts métrages, long métrages ou bien jeux viédos. Le lieu de travail peut être flexible, parfois les employeurs demandent de venir travailler en présentiel, d'autres permettent un travail hybride, et d'autres du remote work, donc travail à la maison. Afin de pratiquer ce métier, il faut une très bonne connaissance des applications de montages, effets 3D
 et autres. Ce qui m'attire beaucoup dans ce métier est surtout l'aspect de l'amusement, j'aime travailler dans ce genre de choses, alors de pouvoir être rémunéré pour le faire, ça serait encore mieux. De plus, cet emploi est stable, les risques de se retrouver sans travail du jour au lendemain ne sont pas super haute et les salaires peuvent monter assez haut, jusqu'à 90k$ par année.
+
 ### Emploi 4 - Modélisation 3D
-4 à 5 lignes
+Travail qui consiste à réaliser des modèles 3D, créer des animations 3D, tout ce qui se rapporte au monde des modèles virtuels en trois dimensions. Travail en studio, possibilité de travailler de la maison, dépendament du studio qui vous emploie. Pour pouvoir travailler dans ce domaine, il faut une bonne connaissance en modélisation 3D, un point de vue artistique, de la créativité afin de trouver des idées, si jamais il n'y a pas un sujet précis qui vous est demandé. J'aimerais bien travaillé dans ce domaine car créer des modèles 3D serait quelque chose qui me garderait réveillé, je ne m'ennuirais pas puisque je serais constament en train de faire des nouveaux modèles 3D, ou bien retravaillé des modèles imparfait, et le monde du jeu vidéo est quelque chose qui m'intéresse depuis que je suis tout petit alors ce serait une idée de travail intéressant.
 
 ### Emploi 5 - Identification
 4 à 5 lignes
